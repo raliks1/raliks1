@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @raliks1
-- 👀 I’m interested in gym
-- 🌱 I’m currently learning about gym
-- 💞️ I’m looking to collaborate in gym
-- 📫 How to reach me to 100kg bench?
-- 😄 Pronouns: gymbro
+- 👀 I’m interested in getting stronger in gym
+- 🌱 I’m currently learning about getting better progress in gym
+- 💞️ I’m looking to collaborate in gym with my friends
+- 📫 How do I reach 130kg bench?
+- 😄 Pronouns: Stupid Musclehead
 - ⚡ Fun fact: I bench more than you>:]
 
 <!---
